@@ -4,6 +4,8 @@ https://en.wikipedia.org/wiki/Municipal_Health_Service
 
 https://nl.wikipedia.org/wiki/Huisartsenpost
 
+
+https://en.wikipedia.org/wiki/Bioterrorism
 https://nl.wikipedia.org/wiki/Liquidatie_(moord)
 
 https://nl.wikipedia.org/wiki/Staat_der_Nederlanden
